@@ -12,10 +12,6 @@ Retail brands, subscription companies, eCommerce sellers, and manufacturers thro
 - White corrugated mailer boxes
 - Printed mailer box designs
 - Die-cut box configurations
-- Custom-sized mailer cartons
-- Recyclable packaging options
-- Heavy-duty mailer boxes
-- Wholesale supply programs
 
 ---
 
